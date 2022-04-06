@@ -24,7 +24,9 @@ Life goes by quick and the to-do list is never done, but I've been staying busy.
 - [x] Switch careers to avoid destitute poverty 😒
 - [x] Build professional expertise 💪
 - [x] Help others find success and joy at work 💝
-- [ ] Ride off into the sunset (aka retire) 🌆
+- [ ] Cook all the recipes in my cookbooks 👨‍🍳
+- [ ] Visit Svalbard 🐻‍❄️
+- [ ] Ride off into the sunset 🌆
 
 
 
